@@ -81,6 +81,8 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Louis
 
+![thorsday](https://media.giphy.com/media/j16BWCHEQZMOc/giphy.gif?cid=ecf05e47s1mriuei0lggo6b57t41uadx8st5mos0vpnnnuc1&rid=giphy.gif&ct=g)
+
 ### Matthew
 
 ![CAT CODING IN PYTHON](https://media.giphy.com/media/unQ3IJU2RG7DO/giphy.gif?cid=ecf05e47piqdxj29dd3nxizfo5zljc4brwpop9bq9s284uz2&rid=giphy.gif&ct=g)
