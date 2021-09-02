@@ -49,9 +49,10 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Derek
 
-### Ely
 
-![Confused](https://tenor.com/bjCRl.gif)
+### Ely 
+![UGH](https://media.wired.com/photos/59326d5344db296121d6aee9/master/pass/8552.gif)
+
 
 ### Emine
 
