@@ -94,7 +94,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Star Trek](https://media1.giphy.com/media/5hxrnfcvarTa7Sml02/giphy.gif?cid=790b7611e5ad698eb5df0ed17f415502d99847be0f00184b&rid=giphy.gif&ct=g)
 
 ### Paul
-
+![Good Morning Coffee gif from giphy](https://media.giphy.com/media/xFmwnGWu0UUb0pRIVq/giphy.gif?cid=ecf05e47fma61cl32hatphger34yab7qkjhqwtuyp8rsnipo&rid=giphy.gif&ct=g)
 
 ### Samantha 
 ![picture of a sleepy baby](https://media.giphy.com/media/xT8qBvH1pAhtfSx52U/giphy.gif?cid=ecf05e47purjp99af5quyedqo3c661se4iaov66t4edwce5f&rid=giphy.gif)
