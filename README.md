@@ -91,7 +91,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Patrick 
-
+![Star Trek](https://media1.giphy.com/media/5hxrnfcvarTa7Sml02/giphy.gif?cid=790b7611e5ad698eb5df0ed17f415502d99847be0f00184b&rid=giphy.gif&ct=g)
 
 ### Paul
 
