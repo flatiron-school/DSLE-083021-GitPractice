@@ -31,7 +31,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![R2D2, a droid, falling over](https://media.giphy.com/media/bq6F8QYqBU7Yc/giphy.gif?cid=ecf05e47bfiq2kxz80ltl6e938rylr2zk5yl4wix2jb2pys5&rid=giphy.gif&ct=g)
 
 ### Andrew 
-
+![Brutus pumping iron](https://media.giphy.com/media/xT8qBbNGjXTo4XzuJa/giphy.gif?cid=ecf05e47f5m0lfm2uwjdvm4c0h5b7sgkirh23c1viux5y1si&rid=giphy.gif&ct=g)
 
 ### Brooke 
 ![stressed Selena](https://media.giphy.com/media/Pjr0NCGk4WMQPQtg0C/giphy-downsized-large.gif?cid=ecf05e47ozxd6qpf3lzc6yd7yfvtext7612hkdvg2ul3y110&rid=giphy-downsized-large.gif&ct=g)
