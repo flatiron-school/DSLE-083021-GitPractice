@@ -73,7 +73,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Patrick Star very confused gif from giphy] (https://media.giphy.com/media/3oxOCgO51eEuHZbetG/giphy.gif?cid=790b7611bdb6ff0f066fe8a0fac2c317781f58d2771a89c6&rid=giphy.gif&ct=g)
 
 ### Jennifer C 
-
+![cat work out from giphy](https://media.giphy.com/media/uLjx3T8zp2ZWPe3yN5/giphy.gif?cid=ecf05e47pbwvm35z44508lun7sdh1x3lzo6ymu93xxr3pe9r&rid=giphy.gif&ct=g)
 
 ### Louis 
 
