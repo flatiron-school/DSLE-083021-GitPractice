@@ -79,7 +79,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Mellissa 
-
+![coding](https://media.giphy.com/media/13HgwGsXF0aiGY/giphy.gif?cid=ecf05e47uasm9bi8g9gyqr763rfspewjx4gzrv5pgzkwd0e8&rid=giphy.gif&ct=g)
 
 ### Michael 
 
