@@ -37,7 +37,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Crystal 
-
+![dog with a stick that is too big gif](https://c.tenor.com/bQLlr6k9ZycAAAAM/big-brain.gif)
 
 ### Danielle 
 
