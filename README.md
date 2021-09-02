@@ -59,7 +59,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Thurdsay morning yawn](https://media.giphy.com/media/bGCwmLDnwL25kCg3FV/giphy-downsized-large.gif?cid=ecf05e47akijuukxixoubx0tr82j43haolejeiu916133scj&rid=giphy-downsized-large.gif&ct=g)
 
 ### Jade 
-
+![week 1](https://media.giphy.com/media/9M5jK4GXmD5o1irGrF/giphy.gif)
 
 ### Jalen 
 
