@@ -37,7 +37,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Crystal 
-![golden retreiver happily dragging a branch gif from giphy](https://media3.giphy.com/media/H4zaKzL5e7ypqn10zi/giphy.gif?cid=790b76111c13712c4a9ef87e3f0489381ed946ff3cd855b5&rid=giphy.gif)
+![dog with a stick that is too big gif](https://c.tenor.com/bQLlr6k9ZycAAAAM/big-brain.gif)
 
 ### Danielle 
 
