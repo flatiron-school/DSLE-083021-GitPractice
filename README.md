@@ -67,7 +67,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Jeff 
-
+![Shaq and cat vibing gif](https://media.giphy.com/media/W80Y9y1XwiL84/giphy.gif?cid=ecf05e47lgamqhb0oanihkoaplo7vc1td0io6e5z8479fgga&rid=giphy.gif&ct=g)
 
 ### Jen S 
 ![Patrick Star very confused gif from giphy] (https://media.giphy.com/media/3oxOCgO51eEuHZbetG/giphy.gif?cid=790b7611bdb6ff0f066fe8a0fac2c317781f58d2771a89c6&rid=giphy.gif&ct=g)
