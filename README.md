@@ -50,7 +50,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Ely 
-
+![Leonardo Dicaprio Laughing](https://media.giphy.com/media/MccXoMrOhrpRe/giphy.gif?cid=ecf05e47yqi62qfr5ugcx7o6q5abkasz0o81zqoietvv58kn&rid=giphy.gif&ct=g)
 
 ### Emine 
 
