@@ -47,7 +47,8 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ![Letterkenny-Hooray gif from giphy](https://media.giphy.com/media/AhXw4MktwT7C16OsmG/giphy.gif?)
 
-### Derek
+### Derek 
+![](https://media.giphy.com/media/3nbxypT20Ulmo/giphy.gif)
 
 
 ### Ely 
